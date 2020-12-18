@@ -1,0 +1,1 @@
+# minoar.educavo
